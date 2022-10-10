@@ -5,3 +5,6 @@ I am Sindhuja Ravi, doing Master of Science in Computer Engineering, specialisin
 Contact no: +16699779256  
   
 Linkedin: https://www.linkedin.com/in/sindhuja-ravi  
+  
+Resume: https://sindhujaravi08.github.io/downloadable/resume.pdf  
+  
